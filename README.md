@@ -1,4 +1,4 @@
-### Hi, I’m Sharunjith M S
+### Hi👋I’m Sharunjith M S
 -  I Completed BSc Mathematics in 2021, from Don Bosco Arts And Science College ,Angadikadavu,Kannur,Kerala
 -  I’m currently learning Data Analytics Course from EduBridge
 -  I’m looking to collaborate on 
