@@ -5,6 +5,6 @@
 ### Reach me via
 -  G-mail : sharunjith27@gmail.com
 -  Instagram : https://instagram.com/sharunjith_?igshid=ZmZhODViOGI=
--  LinedIn: https://www.linkedin.com/in/sharunjith-m-s-45b3a11b5/
+-  LinkedIn: https://www.linkedin.com/in/sharunjith-m-s-45b3a11b5/
 -  Sololearn : https://www.sololearn.com/profile/26452755
 -  Hackerrank : https://www.hackerrank.com/sharunjith27
